@@ -40,6 +40,7 @@ We are recruitsing agents worldwide, please contact us at lion@cragon.cn
 - [Slot Online](https://qqbareng1.com/desktop/slots/)
 - [Poker Online](https://qqbareng2.com/desktop/poker/)
 - [Live Draw HK](http://45.76.188.108/live-hk/)
+- [Situs Slot Online](https://iogbet.com/)
 
 ### 果派德州游戏截图
 ![e](https://github.com/CragonGame/CasinosClient/blob/master/Doc/Images/e.png)
