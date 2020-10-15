@@ -39,7 +39,7 @@ We are recruitsing agents worldwide, please contact us at lion@cragon.cn
 ### Sites
 - [Slot Online](https://iogbet.com/)
 - [berita bola terkini](https://saranggoal.com/)
-- [kumpulan cerita dewasa](ttp://207.148.124.207/)
+- [kumpulan cerita dewasa](http://207.148.124.207/)
 
 ### 果派德州游戏截图
 ![e](https://github.com/CragonGame/CasinosClient/blob/master/Doc/Images/e.png)
